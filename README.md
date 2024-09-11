@@ -7,3 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+* I WAYAN SATYA WIDHYA PUTRA PRATAMA, [Linkedin](www.linkedin.com/in/wayan-pratama-575543300)
